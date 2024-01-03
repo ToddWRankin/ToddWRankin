@@ -7,4 +7,5 @@
 <!---
 ToddWRankin/ToddWRankin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+--->I have sold in over $100MM of ARR over the course of my career!
+I am a sesaon, professional sales profesional in search of a new exciting opportunity!
